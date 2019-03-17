@@ -3,3 +3,5 @@
 [quizlet1](https://quizlet.com/1706549/western-civ-notes-flash-cards/)
 
 [quizlet2](https://quizlet.com/348208/western-civilization-i-clep-study-guide-flash-cards/)
+
+[our_quizlet](https://quizlet.com/join/U6UJs8Uuz)
