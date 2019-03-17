@@ -5,3 +5,5 @@
 [quizlet2](https://quizlet.com/348208/western-civilization-i-clep-study-guide-flash-cards/)
 
 [our_quizlet](https://quizlet.com/join/U6UJs8Uuz)
+
+[chapter 1 outline] (https://docs.google.com/document/d/1ITmXHiokrFDiBuqIvylW9HWY2Sp57vDYcD6n1BW6Aps/edit?usp=sharing)
