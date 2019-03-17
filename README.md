@@ -6,4 +6,4 @@
 
 [our_quizlet](https://quizlet.com/join/U6UJs8Uuz)
 
-[chapter 1 outline] (https://docs.google.com/document/d/1ITmXHiokrFDiBuqIvylW9HWY2Sp57vDYcD6n1BW6Aps/edit?usp=sharing)
+[chapter 1 outline](https://docs.google.com/document/d/1ITmXHiokrFDiBuqIvylW9HWY2Sp57vDYcD6n1BW6Aps/edit?usp=sharing)
